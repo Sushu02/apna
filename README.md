@@ -1,3 +1,3 @@
 # apna
 <br/>
-Author - Sushmitha S
+Author - Sushmitha S {apnacollege}
